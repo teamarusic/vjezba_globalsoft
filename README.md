@@ -1,1 +1,1 @@
-krkrk
+vjezba globalsoft
